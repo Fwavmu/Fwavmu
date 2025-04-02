@@ -2,4 +2,3 @@
 
 🌱 Currently Exploring: Advanced Data Analytics & its impact on decision-making
 
-📫 you can reach me on email: muindemilly@gmail.com
